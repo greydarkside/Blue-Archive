@@ -237,4 +237,4 @@ Blue Archive is offered as a full free version, providing access to all features
 Don’t miss out on the excitement! [Download Blue Archive free](https://www.softyne.com/blue-archive) today and embark on your epic adventure!
 
 ---
-**Last updated:** 2026-11-14 07:20:48 UTC
+**Last updated:** 2026-11-14 14:45:24 UTC
